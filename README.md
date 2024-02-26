@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **202210512@fit.edu.ph**
 
-- 📄 Know about my experiences [https://jshmrk.github.io/AWD-Resume/](https://jshmrk.github.io/AWD-Resume/)
+- 📄 Know about my experiences [https://jshmrk.github.io/AWD-Resume/](https://jshmrk.github.io/RESUME-AWD-FEUTECH/)
 
 - ⚡ Fun fact **I am an Outgoing person**
 
